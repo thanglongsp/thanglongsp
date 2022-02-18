@@ -1,3 +1,3 @@
-_**If you like what you do, and you're lucky enough to be good at it, do it for that reason.**_
+_**Great things are done by a series of small things brought together.**_
 
-Phil Grimshaw
+Vincent Van Gogh
