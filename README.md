@@ -1,3 +1,3 @@
-_**If you don't have confidence, you'll always find a way not to win**_
+_**By failing to prepare, you are preparing to fail.**_
 
-Carl Lewis
+Benjamin Franklin
