@@ -1,3 +1,3 @@
-_**You will never win if you never begin.**_
+_**Do not let what you cannot do interfere with what you can do.**_
 
-Helen Rowland
+John Wooden
